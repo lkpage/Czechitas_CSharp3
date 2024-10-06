@@ -1,0 +1,1 @@
+# Poznamky z lekce 1
